@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @ggetu1/ Gelila Getu
+- 👀 I’m interested in Reading Books, Painting, Working Out, Cooking and Creating New Things.  
+- 🌱 I’m currently diving into Abyss, Teraform, Mermaid, AWS and more.
+- 💞️ I’m looking to collaborate on cool projects regarding AI, Security, Data Analysis. I am Passionate about Team Work and Managment.
+- 📫 You can reach me Via Email T Gelila_Getu@optum.com
+- ⚡ Fun fact about me is Cream Cheese changed my life!
